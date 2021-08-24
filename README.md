@@ -1,0 +1,1 @@
+# Thai-lottery-likye-nambar
